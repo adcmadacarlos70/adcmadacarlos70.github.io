@@ -1,1 +1,0 @@
-# adcmadacarlos70.github.io
